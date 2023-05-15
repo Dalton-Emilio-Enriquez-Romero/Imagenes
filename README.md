@@ -9,7 +9,7 @@ Imágenes de cultura digiral
 
 ![U_Logo_Small_black](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/d550ff78-9aa6-4a81-bd28-c17502b18d8c)
 
-![Portada](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/91103bf9-c996-4ae8-b3ef-1dda6f160134)
+![Portada Cultura Digital](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/b3a3ae06-5406-469c-9221-a538b7100c08)
 
 
 
