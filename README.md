@@ -7,6 +7,7 @@ Imágenes de cultura digiral
 
 ![Hibridación Software](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/634d7a30-a0b5-41da-b686-223c507338b2)
 
+![U_Logo_Small_black](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/d550ff78-9aa6-4a81-bd28-c17502b18d8c)
 
 
 
