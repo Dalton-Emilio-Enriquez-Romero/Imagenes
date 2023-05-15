@@ -5,5 +5,8 @@ Imágenes de cultura digiral
 ![Audiotool logo svg](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/e10d2318-8921-4a69-9879-6be07ef150f2)
 
 
+![Hibridación Software](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/634d7a30-a0b5-41da-b686-223c507338b2)
 
-![HIbridacion_software](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/50190c1d-7165-45ce-9630-0b127e07cb7c)
+
+
+
