@@ -11,8 +11,8 @@ Imágenes de cultura digiral
 
 ![Portada Cultura Digital](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/b3a3ae06-5406-469c-9221-a538b7100c08)
 
+![Unity](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/3b5259a9-ba53-44cc-834f-f5d9c44c6be0)
 
-![Unity](https://github.com/Dalton-Emilio-Enriquez-Romero/Imagenes/assets/132956848/34a753fc-bca3-40bd-8e5d-41272edd2851)
 
 
 
